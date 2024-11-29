@@ -1,1 +1,1 @@
-[TigerMed](Group%20Midterm%20Project.pdf))
+[TigerMed](Group%20Midterm%20Project.pdf)
